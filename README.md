@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @andrewkurd7
-- 👀 I’m interested in minecraft and football(soccer)
+- 👀 I’m interested in nothing 
 - 🌱 I’m currently learning nothing
-- 💞️ I’m looking to collaborate on
-- 📫 How to reach me:discord andrews#0629
+- 💞️ I’m looking to collaborate on nothing 
+- 📫 How to reach me:telegram @AndrewBruv
 
 <!---
 andrewkurd7/andrewkurd7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
